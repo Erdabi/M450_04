@@ -1,1 +1,1 @@
-Granat
+Granatapfel 
